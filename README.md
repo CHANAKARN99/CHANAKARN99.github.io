@@ -1,7 +1,7 @@
 # CHANAKARN99.github.io
-                                                       CURRICULUM VITAE
+                                                 CURRICULUM VITAE
 
-                                      Tel.: 6694 4930871, E-mail: chanakarn.charumalai@gmail.com
+                         Tel.: 6694 4930871, E-mail: chanakarn.charumalai@gmail.com
 
 Name     : Ms. CHANAKARN  CHARUMALAI
 
