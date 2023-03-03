@@ -16,13 +16,21 @@ I had experienced in management field as Senior Project Coordinator at Site Land
 I have worked as a Structural / Design Engineer with over 7 years of experience in Steel Structures and Reinforce Concrete Design. Well Familiar with British Codes and American Codes.
 
 Key Highlights include:
+
 •	7+ years experiences in construction and engineering industries.
+
 •	Experienced as Project Manager, Senior Project Coordinator, Design Engineer and Structural Engineer.
+
 •	Strong knowledge of construction and familiar with both British and American Code.
+
 •	Experienced working with both government and private sectors in multiple projects on the construction.
+
 •	Good liaising with internal and external corporates; subcontractor and related organizations.
+
 •	Enthusiastic to accomplish all work procedures efficiently with positive attitude.
+
 •	Well organized, great personality, open-mind, creative and analytical thinker.
+
 •	Fluent in speaking and writing at upper intermediate level.
 
 Computer Programs
@@ -34,8 +42,11 @@ Basic:	Microsoft office (Word, Excel, Power point)
 Educations
 
 2011-2013	Swansea University MSc. (Merit) Civil Engineering
+
 2006-2007	Kasetsart University B.Eng. Civil  Engineering
+
 2002-2007	Ramkhamhaeng University B.A.Pol.Sc. (Political Science)
+
 2002-2006	Kasetsart University B.Eng. Irrigation  Engineering
 
 
